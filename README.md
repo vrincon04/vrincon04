@@ -1,4 +1,4 @@
-***Feel free to contact me. I am always here :smirk: *** 
+***Feel free to contact me. I am always here :smirk:*** 
 
 <h2 align='center'><samp><strong>Hi there 👋, I am Victor Rincón</strong></samp></h2>
 
